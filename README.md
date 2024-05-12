@@ -3,4 +3,5 @@
 learning unity
 likes valve games
 
-oh i dont have much of a personality
+copper 5 in r6 siege
+FUCK
